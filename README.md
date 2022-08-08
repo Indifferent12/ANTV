@@ -1,2 +1,1 @@
-# ANTV
-1.250
+http://ox.xmkczs.com/quantumultX/ads/antvvip.conf
